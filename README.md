@@ -50,9 +50,7 @@
 
 ✰Marie (Splatoon)
 
-✰Sonic and Shadow (Sonic)
-
-✰Veneer and Branch (Trolls)
+✰Jax (TADC)
 
 ✰MK, Sun Wukong, Macaque (LMK)
 
